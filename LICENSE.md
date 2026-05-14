@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with king legacy Script no-ban, the #1 Script. Includes speed and infinite resources for unbeatable
 
 
 
